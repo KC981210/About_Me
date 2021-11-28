@@ -1,4 +1,5 @@
 - 👋 Hi, I’m Ketan Chaudhari
+- ⚙🔩 A Mechanical Engineer.
 - 📫 You can reach me through my mail id kriot2016@gmail.com
 
 <!---
